@@ -59,6 +59,8 @@ We respect your privacy. No personal data is collected without your consent.
 ## 📩 Support
 
 If you have any questions or feedback, feel free to contact us.
+Email: wjq123521@gmail.com
+We will respond within 48 hours.
 
 ---
 
