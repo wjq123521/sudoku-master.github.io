@@ -72,6 +72,3 @@ Start your daily brain training with Sudoku Master today! ðŸ‘‰ [Sudoku Master â€
 
 This app uses Google AdMob for advertising.
 
-Authorized sellers:
-
-google.com, pub-5798239839907157, DIRECT, f08c47fec0942fa0
